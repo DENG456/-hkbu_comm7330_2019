@@ -1,2 +1,1 @@
-# A brand new major 
-## 1. A brand new life! :grinning:
+# A brand new major ! A brand new life! :grinning:
